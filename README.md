@@ -7,7 +7,6 @@
 * Compra y recarga de bidones
 
 ## ¿Necesitas ayuda?
-## ¿Necesitas ayuda?
 Discord: https://discord.gg/5UUJ2ffVY4
 
 <a href="https://www.youtube.com/watch?v=tQ0cL9qGqbA"><img src="https://cdn.discordapp.com/attachments/1143757665374318752/1157084152949125280/SPOILER_image.png" /></a>
